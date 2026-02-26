@@ -1,1 +1,1 @@
-
+This file and all connecting files belong to Nintendo and Super Mario 64, i don't claim any of these files as my own, i just am simply providng it as a free file to use in videos, renders, ext, don't sue me!
